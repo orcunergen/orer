@@ -43,4 +43,4 @@ pour them in to cake mold. and bake them 40 minutes in 170 degrees oven.
 rest them and serve.
 bon apetite !
 
-1 portio(55g) 150 kCal
+1 portion(55g) 150 kCal
