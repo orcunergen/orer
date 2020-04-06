@@ -79,6 +79,6 @@ rest them and serve.
 
 bon apetite !
 
-![alt text](https://images.app.goo.gl/qusBP412CvSU6iRP7)
+![alt text](https://images.app.goo.gl/oCWhDFgoDkWCaedo8)
 
 #### 1 portion(55g) 150 kCal
