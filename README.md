@@ -55,4 +55,5 @@ bon apetite !
 
 ![alt text](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcT_TFX_eqcN3vTbNDZJgKW-m70moW_hOhGZMXXkKzLguaJouD_t&usqp=CAU)
 
-#### 1 portion(55g) 150 kCal
+#### 1 portion(55g)=150 kCal,100g=270 kCal
+
